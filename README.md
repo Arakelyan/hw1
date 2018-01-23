@@ -19,7 +19,7 @@
 ## Именно так выглядят студенты которые не успевают спать
 # ![](https://github.com/Arakelyan/hw1/blob/master/%D1%81%D1%82%D0%B8%D1%87.png?raw=true)
 ## И именно так, когда пытаются что-то исправить
-<https://giphy.com/gifs/pandawhale-stitch-lilo-HkNPbfRhisIH>
+<a href="https://imgflip.com/gif/237v9i"><img src="https://i.imgflip.com/237v9i.gif" title="made at imgflip.com"/></a>
 # Ну и пользуясь случаем оставлю ссылочку на [мой инстаграмчик](http://www.instagram.com/vaaart)
 
 # Ну и конечно за доп.баллы я прикреплю таблицу с моим расписание на 22.01.18
